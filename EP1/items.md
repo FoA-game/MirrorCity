@@ -35,7 +35,7 @@ Among the ruins of a hall ravaged by fire, "The Scribes" found their place of as
 
 ### MC 08 - Ancient Clay Tablet
 Allegedly discovered within a Sumerian city, this ancient tablet bears a cuneiform script dating back to 4000 BC. <br>
-The script on the tablet is embryonic, believed to to document the genesis of the earliest known form of writing. <br>
+The script on the tablet is embryonic, believed to document the genesis of the earliest known form of writing. <br>
 It carries the primal cry of human civilization and now holds no utility anymore.
 
 ### MC 09 - Crystallized Skeleton
