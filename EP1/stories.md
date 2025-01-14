@@ -11,13 +11,13 @@ Those who refuse to embrace change, who shy away from practical endeavors, or wh
 
 Dear Zacena,
 
-We received the projection card of the blue and white porcelain vase you restored, and it is a true beauty. The kids and I miss you every day, especially at night when they keep asking when mom will be home.
+We received the projection card of the blue and white porcelain vase you restored, and it is a true beauty. The kids and I miss you every day, especially at night when they keep asking when Mom will be home.
 
-You're doing great work with the Alexandria Archives Association, and I truly admire your passion and dedication. But dear, I can't help but wonder, what value do all these ancient artifacts hold in our world full of dangers? The demand in our world is increasingly for practical technologies, and those old items don't seem to bring much to the table. I know this might sound a bit direct, but today's news even referred to you and your colleagues as AAA scavengers.
+You're doing great work with the Alexandria Archives Association, and I truly admire your passion and dedication. But dear, I can't help but wonder, what value do all these ancient artifacts hold in our world full of dangers? The world we live in today needs practical technology more than ever, and these relics don’t seem to address any pressing issues. I know this might sound a bit direct, but today's news even referred to you and your colleagues as "3A Scavengers."
 
 Your younger brother, Jela, has become a mechanical engineer at Fortress, and the whole family is proud of him. His achievements are beneficial to society and allow him to support himself and his family. In contrast, your choices seem to have led you in a different direction.
 
-I'm not trying to tell you what to do, dear, just that I wish we had more money and time to make our home more complete.
+I'm not trying to tell you what to do, dear; I just wish that we had more money and that the kids and I could be closer to you.
 
 Hoping to hear your voice soon. Take care, we all love you and miss you here.
 
