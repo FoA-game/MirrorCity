@@ -2,7 +2,9 @@
 
 This is a city steeped in the twilight of yesteryears. Following the Second Great Disruption, the grand city of Artica was reduced to ashes. Yet, its survivors, driven by nostalgia, endeavored to resurrect the city on the northern side of the canyon. However, the incomplete museums and shattered galleries seemed to mock their efforts, ridiculing their futile and impractical attempt—The splendor of Artica had been whisked away by the winds of time, leaving in its wake merely a fractured mirror—a poignant reflection of human arrogance and grief.
 
-As Nuovartica rose from the ruins of Artica, the White Tower Council stripped the city of its original name, dubbing it Mirror City. This land became a sanctuary for those ghosts cast aside by the new world: artists, poets, writers, historians, anthropologists... Once, perhaps, they have been unmatched in skill and basked in glory, yet in this reshaped world, they are labeled merely as "the useless," their talents considered obsolete, their convictions insignificant. Should they shy away from embracing change, diving into the practice, and lending their strength to society, they risk being left adrift in a world that prizes utility and efficiency above all.
+As Nuovartica rose from the ruins of Artica, the White Tower Council stripped the city of its original name, dubbing it Mirror City. This land became a sanctuary for those ghosts cast aside by the new world: artists, poets, writers, historians, anthropologists... Once, perhaps, they have been unmatched in skill and basked in glory, yet in this reshaped world, they are labeled merely as "the useless," their talents considered obsolete, their convictions insignificant.
+
+Those who refuse to embrace change, who shy away from practical endeavors, or who offer no tangible contributions to society are being slowly consigned to oblivion. If they persist in clinging to the dimming embers of a bygone era, this city will inevitably stand as their final epitaph.
 
 
 ## MC B - Call from Afar
