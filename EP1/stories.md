@@ -22,7 +22,7 @@ I'm not trying to tell you what to do, dear, just that I wish we had more money 
 Hoping to hear your voice soon. Take care, we all love you and miss you here.
 
 Forever yours, <br>
-Chad Strickland
+Chad
 
 
 ## MC C - Art Critic
