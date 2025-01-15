@@ -6,7 +6,7 @@ The origin of the delicate and soft leather remains a mystery, with "Made in Fon
 ### MC 02 - Portrait
 A painting less than a meter in size, with layers of paint applied to a black wooden board. <br>
 The figure's face is obscured by stains, making it difficult to identify, with only a mysterious smile visible at the corners of the mouth. <br>
-An aged piece of work, it's unclear where the AAA scavengers found it.
+An aged piece of work, it's unclear where the 3A scavengers found it.
 
 ### MC 03 - Beer
 Named "beer," this alcoholic beverage is concocted from a mix of one part aldehyde, four parts ethanol hydrate, two parts alpha acid and gingerol, infused with carbon dioxide and tinted pale yellow as a tradition. <br>
