@@ -15,7 +15,7 @@ Its production seems to be waning of late.
 
 ### MC 04 - Poetry Collection
 An ancient poetry collection, its cover marked with the title "The Waste Land." <br>
-The text is printed on thin sheets made of plant fibers, known as "paper," now yellowed by time. This fragile medium, having traversed the river of years, likely owes its preservation to the meticulous care of some institution. <br>
+The text is printed on thin sheets made of plant fibers, known as "paper," now yellowed by time. <br>
 One might wonder—what significance do such words hold for our real lives?
 
 ### MC 05 - Drama Script
