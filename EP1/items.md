@@ -20,7 +20,7 @@ One might wonder—what significance do such words hold for our real lives?
 
 ### MC 05 - Drama Script
 A masterpiece by Ylva Ekstromd, the greatest Fluidismo playwright of the Golden Age, titled "No One Has Ever Returned." <br>
-Set against the backdrop of the West War, the script delves into the dual entanglement of love and death, transcending traditional modes of language and text. <br>
+Set against the backdrop of the West War, the script delves into the metaxis of love and death, transcending traditional modes of language and text. <br>
 Civilization may fade, but the human spirit and love for this world are never extinct.
 
 ### MC 06 - Slime Mold Bread
