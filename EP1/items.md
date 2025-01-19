@@ -4,9 +4,9 @@ No longer trusting digital storage methods, "The Scribes" have opted to return t
 The origin of the delicate and soft leather remains a mystery, with "Made in Fon Bay" faintly visible on it.
 
 ### MC 02 - Portrait
-A painting less than a meter in size, with layers of paint applied to a black wooden board. <br>
-The figure's face is obscured by stains, making it difficult to identify, with only a mysterious smile visible at the corners of the mouth. <br>
-An aged piece of work, it's unclear where the 3A scavengers found it.
+A painting less than a meter in size, with layers of paint applied to a black wooden board. The figure's face is obscured by stains， with only a mysterious smile visible at the corners of the mouth. <br> 
+An aged piece of work, it's unclear where the 3A scavengers found it. <br>
+It is merely one of the many forgotten relics from a museum's display case.
 
 ### MC 03 - Beer
 Named "beer," this alcoholic beverage is concocted from a mix of one part aldehyde, four parts ethanol hydrate, two parts alpha acid and gingerol, infused with carbon dioxide and tinted pale yellow as a tradition. <br>
@@ -16,7 +16,7 @@ Its production seems to be waning of late.
 ### MC 04 - Poetry Collection
 An ancient poetry collection, its cover marked with the title "The Waste Land." <br>
 The text is printed on thin sheets made of plant fibers, known as "paper," now yellowed by time. <br>
-One might wonder—what significance do such words hold for our real lives?
+The worlds the poet once lived in are long gone— is there no one left now to understand his soul?
 
 ### MC 05 - Drama Script
 A masterpiece by Ylva Ekstromd, the greatest Fluidismo playwright of the Golden Age, titled "No One Has Ever Returned." <br>
