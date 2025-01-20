@@ -1,10 +1,10 @@
 ## MC A - Paradise Lost
 
-This is a ghost steeped in the fading afterglow of yesteryears. Following the Second Great Disruption, the Grand City of Artica was reduced to ashes. Yet, its survivors clung stubbornly to the splendor of the past. Their futile attempts to resurrect the city on the northern edge of the canyon left behind only unfinished museums and crumbling galleries, as if silently mocking the hubris of humanity. The winds had long whisked away the brilliance of Artica, and this city became but a shattered mirror, reflecting human arrogance and grief.
+This is a ghost steeped in the fading afterglow of yesteryears. Following the Second Great Disruption, the Grand City of Artica was reduced to ashes. Yet, its survivors clung stubbornly to the splendor of the past. Their futile attempts to resurrect the city on the northern edge of the canyon left behind only unfinished museums and crumbling galleries, as if silently mocking the hubris of humanity. The winds had long whisked away the brilliance of Artica, and this city became but a shattered mirror, reflecting human arrogance and grief. 
 
-Years later, when Novartica rose from the ruins of Artica, the White Tower Council stripped the city of its original name and dubbed it Mirror City. This land became a haven for the ghosts discarded by the new world: artists, poets, writers, historians, anthropologists... Once masters of their crafts and celebrated in their time, they are now scorned by the remade age as "the useless," their talents deemed obsolete, and their beliefs dismissed as illusions.
+Years later, when Novartica rose from the ruins of Artica, the White Tower Council stripped the city of its original name and dubbed it Mirror City. This land became an exile for the ghosts cast aside by the new world: artists, poets, writers, historians, anthropologists... Once masters of their crafts and celebrated in their time, they are now scorned by the remade age as "the useless," their talents deemed obsolete, and their beliefs dismissed as illusions.
 
-Those who refuse to embrace change, who shy away from practical endeavors, or who offer no tangible contributions to society are being slowly consigned to oblivion. If they persist in clinging to the dimming embers of a bygone era, this city is fated to stand as their shared epitaph.
+Those who refuse to embrace change, who shy away from practical endeavors, or who offer no tangible contributions to society are being slowly consigned to oblivion. If they persist in clinging to the dimming embers of a bygone era, this city is fated to stand as their shared graveyard.
 
 
 ## MC B - Call from Afar
