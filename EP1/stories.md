@@ -1,10 +1,10 @@
 ## MC A - Paradise Lost
 
-This is a city steeped in the twilight of yesteryears. Following the Second Great Disruption, the Grand City of Artica was reduced to ashes. Yet, its survivors, driven by nostalgia, endeavored to resurrect the city on the northern side of the canyon. However, the incomplete museums and shattered galleries seemed to mock their efforts, ridiculing their futile and impractical attempt—The splendor of Artica had been whisked away by the winds of time, leaving in its wake merely a fractured mirror—a poignant reflection of human arrogance and grief.
+This is a ghost steeped in the fading afterglow of yesteryears. Following the Second Great Rupture, the Grand City of Artica was reduced to ashes. Yet, its survivors clung stubbornly to the splendor of the past. Their futile attempts to resurrect the city on the northern edge of the canyon left behind only unfinished museums and crumbling galleries, as if silently mocking the hubris of humanity. The brilliance of Artica had long been whisked away by the winds, and this city became but a shattered mirror, reflecting human arrogance and grief.
 
-As Nuovartica rose from the ruins of Artica, the White Tower Council stripped the city of its original name, dubbing it Mirror City. This land became a sanctuary for those ghosts cast aside by the new world: artists, poets, writers, historians, anthropologists... Once, perhaps, they have been unmatched in skill and basked in glory, yet in this reshaped world, they are labeled merely as "the useless," their talents considered obsolete, their convictions insignificant.
+Years later, when Novartica rose from the ruins of Artica, the White Tower Council stripped the city of its original name and dubbed it Mirror City. This land became a haven for the ghosts discarded by the new world: artists, poets, writers, historians, anthropologists... Once masters of their crafts and celebrated in their time, they are now scorned by the remade age as "the useless," their talents deemed obsolete, and their beliefs dismissed as illusions.
 
-Those who refuse to embrace change, who shy away from practical endeavors, or who offer no tangible contributions to society are being slowly consigned to oblivion. If they persist in clinging to the dimming embers of a bygone era, this city will inevitably stand as their final epitaph.
+Those who refuse to embrace change, who shy away from practical endeavors, or who offer no tangible contributions to society are being slowly consigned to oblivion. If they persist in clinging to the dimming embers of a bygone era, this city is fated to stand as their epitaph.
 
 
 ## MC B - Call from Afar
@@ -13,7 +13,7 @@ Dear Zacena,
 
 We received the projection card of the blue and white porcelain vase you restored, and it is a true beauty. The kids and I miss you every day, especially at night when they keep asking when Mom will be home.
 
-You're doing great work with the Alexandria Archives Association, and I truly admire your passion and dedication. But dear, I can't help but wonder, what value do all these ancient artifacts hold in our world full of dangers? The world we live in today needs practical technology more than ever, and these relics don’t seem to address any pressing issues. I know this might sound a bit direct, but today's news even referred to you and your colleagues as "3A Scavengers."
+You're doing great work with the Alexandria Archives Association, and I truly admire your passion and dedication. But dear, I can't help but wonder: What value do all these ancient artifacts hold in our world full of dangers? The world we live in today needs practical technology more than ever, and these relics don’t seem to address any pressing issues. I know this might sound a bit direct, but today's news even referred to you and your colleagues as "3A Scavengers."
 
 Your younger brother, Jela, has become a mechanical engineer at Fortress, and the whole family is proud of him. His achievements are beneficial to society and allow him to support himself and his family. In contrast, your choices seem to have led you in a different direction.
 
