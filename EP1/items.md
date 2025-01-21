@@ -16,7 +16,7 @@ Its production seems to be waning of late.
 ### MC 04 - Poetry Collection
 An ancient poetry collection, its cover marked with the title "The Waste Land." <br>
 The text is printed on thin sheets made of plant fibers, known as "paper," now yellowed by time. <br>
-The worlds the poet once lived in are long gone— is there no one left now to understand his soul?
+The worlds the poet once lived in are long gone— is there no one left now to read his soul?
 
 ### MC 05 - Drama Script
 A masterpiece by Ylva Ekstromd, the greatest Fluidismo playwright of the Golden Age, titled "No One Has Ever Returned." <br>
