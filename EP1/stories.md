@@ -40,7 +40,7 @@ The vast cultural heritage of humanity once flowed endlessly into the digital oc
 
 Yet, some are resisting oblivion. They became the librarians of the New Bibliotheca Alexandrina, standing watch over the remaining crystals and yellowed books day after day.
 
-However, the photon crystals bear a half-life of mere fifteen years. Once damaged, everything they hold dissolves into microwaves, vanishing forever. Even with Fortress exhausting its resources to produce new crystals, it is far from sufficient to meet the demands of research and production critical for rebuilding civilization, leaving no room to address the needs of Mirror City: scarce resources, urgent priorities—few pauses to lament the documentations and creations slowly fading into nonexistence.
+However, the photon crystals bear a half-life of mere fifteen years. Once damaged, everything they hold dissolves into microwaves, vanishing forever. Even with Fortress exhausting its resources to produce new crystals, it is far from sufficient to meet the demands of research and production critical for rebuilding civilization, leaving no room to address the needs of Mirror City: scarce resources, urgent priorities—few pauses to lament the documentations and creations slowly vanishing into nonexistence.
 
 Now, Upper Nouvatica has decided to launch the Atlas Project, vowing to provide a new lifeline of water, electricity, and networks across Auroria. Yet, this ambitious endeavor demands a price—the phomos of Mirror City. Since these neglected data are destined to decay, requisitioning them seemed only natural. Fragments of old-world civilization will eventually fade into nothingness, becoming a dream that no one remembers.
 
