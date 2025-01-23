@@ -36,13 +36,14 @@ However, the spectacle staged by these *restorists* scarcely garnered public att
 
 ## MC D - Cache Cleanup
 
-The vast cultural heritage of humanity once flowed endlessly into the digital oceans, condensing in the data centers as phomos — photon memory crystals. Words, sounds, images—threads that wove together millennia of thought and history—were once the most cherished treasures of human beings. Until disaster struck and civilization fell. Countless memory vessels, like fallen stars, obliterated into the boundless darkness.
+The vast cultural heritage of humanity once flowed endlessly into the digital oceans, condensing in the data centers as phomos — photon memory crystals. Words, sounds, images—threads that wove together millennia of thought and history—were once the most cherished treasures of human beings. Until disaster struck and civilization fell, countless memory vessels, like fallen stars, obliterated into the boundless darkness.
 
-Yet, some resist oblivion. They became the librarians of the New Bibliotheca Alexandrina, standing watch over the remaining crystals and yellowed books day after day.
+Yet, some are resisting oblivion. They became the librarians of the New Bibliotheca Alexandrina, standing watch over the remaining crystals and yellowed books day after day.
 
-However, the photon crystals bear a half-life of a mere fifteen years. Once damaged, everything they hold dissolves into microwaves, vanishing forever. Even with Fortress exhausting its resources to produce new crystals, it is far from sufficient to meet the demands of research and production critical for rebuilding civilization, leaving no room to address the needs of Mirror City: scarce resources, urgent priorities—few pause to lament the documentations and creations slowly fading into nonexistence.
+However, the photon crystals bear a half-life of mere fifteen years. Once damaged, everything they hold dissolves into microwaves, vanishing forever. Even with Fortress exhausting its resources to produce new crystals, it is far from sufficient to meet the demands of research and production critical for rebuilding civilization, leaving no room to address the needs of Mirror City: scarce resources, urgent priorities—few pauses to lament the documentations and creations slowly fading into nonexistence.
 
-Now, Upper Novatica has decided to launch the Atlas Project, vowing to weave a new lifeline of water, electricity, and networks across Auroria. Yet, this ambitious endeavor demands a price—the phomos of Mirror City. Since these neglected data are destined to decay, requisitioning them seemed only natural. The remnants of humanity’s old world will vanish into nothingness, becoming a dream never remembered.
+Now, Upper Nouvatica has decided to launch the Atlas Project, vowing to provide a new lifeline of water, electricity, and networks across Auroria. Yet, this ambitious endeavor demands a price—the phomos of Mirror City. Since these neglected data are destined to decay, requisitioning them seemed only natural. Fragments of old-world human civilization were thus doomed to fade into the ether, becoming a dream never remembered.
+
 
 
 ## MC E - Out of Reach
