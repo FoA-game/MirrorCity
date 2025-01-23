@@ -36,11 +36,13 @@ However, the spectacle staged by these *restorists* scarcely garnered public att
 
 ## MC D - Cache Cleanup
 
-Humanity's vast cultural heritage once flowed ceaselessly into the digital oceans of the Internet, cradled within phomos — photon memory crystals — in servers until catastrophe struck. In an instant, the global internet vanished, and with it, the majority of these memory vessels were obliterated, casting invaluable creations and records into an abyss of loss. What remains are scattered phomos in data centers and yellowed books in museums.
+The vast cultural heritage of humanity once flowed endlessly into the digital oceans, condensing in the data centers as phomos — photon memory crystals. Words, sounds, images—threads that wove together millennia of thought and history—were once the most cherished treasures of human beings. Until disaster struck and civilization fell. Countless memory vessels, like fallen stars, obliterated into the boundless darkness.
 
-Phomos, bearing the half-life of mere five years, stood on the brink of dissipating all they encompassed upon damage. Yet, amidst this precarious balance, the relentless pursuit of Fortress to solicit new crystals for the monumental task of civilization's reconstruction went insatiable. In these critical moments, where existence itself hung in the balance, scant were those who lingered to lament the slow fading of documentation and memory into oblivion.
+Yet, some resist oblivion. They became the librarians of the New Bibliotheca Alexandrina, standing watch over the remaining crystals and yellowed books day after day.
 
-Upper Nuovartica launched the Atlas Project, a pledge to weave the vital threads of water, power, and internet throughout Auroria. The ambitious endeavor demanded the sacrifice of phomos laden with text, images, and videos. Since these data were destined to fade, requisitioning the phomos from the New Bibliotheca Alexandrina seemed only natural. Fragments of old-world human civilization were thus doomed to fade into the ether, leaving no trace behind.
+However, the photon crystals bear a half-life of a mere fifteen years. Once damaged, everything they hold dissolves into microwaves, vanishing forever. Even with Fortress exhausting its resources to produce new crystals, it is far from sufficient to meet the demands of research and production critical for rebuilding civilization, leaving no room to address the needs of Mirror City: scarce resources, urgent priorities—few pause to lament the documentations and creations slowly fading into nonexistence.
+
+Now, Upper Novatica has decided to launch the Atlas Project, vowing to weave a new lifeline of water, electricity, and networks across Auroria. Yet, this ambitious endeavor demands a price—the phomos of Mirror City. Since these neglected data are destined to decay, requisitioning them seemed only natural. The remnants of humanity’s old world will vanish into nothingness, becoming a dream never remembered.
 
 
 ## MC E - Out of Reach
